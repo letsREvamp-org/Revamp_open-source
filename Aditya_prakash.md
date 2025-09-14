@@ -1,0 +1,1 @@
+I see you have a workspace with a basic structure. Let me create a comprehensive open source project idea for you. I'll write it
